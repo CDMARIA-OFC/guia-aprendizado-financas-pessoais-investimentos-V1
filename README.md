@@ -72,3 +72,4 @@ Identifique e neutralize os **vieses cognitivos** — como a aversão à perda e
 
 ```
 
+# guia-aprendizado-financas-pessoais-investimentos-V1
