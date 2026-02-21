@@ -6,6 +6,8 @@ Transforme sua realidade financeira com um ecossistema que integra a clareza do 
 
 Este repositório não é apenas um manual teórico; é um **framework de decisão** projetado para quem busca independência financeira e excelência na alocação de capital.
 
+## Acesse aqui: https://notebooklm.google.com/notebook/c32b992e-0142-4795-b3e8-3437d307af87?authuser=2
+
 ---
 
 ## 💡 A Jornada de Transformação
